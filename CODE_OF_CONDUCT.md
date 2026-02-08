@@ -1,0 +1,1 @@
+We are committed to creating a safe, inclusive, and respectful environment for everyone. All participants are expected to be respectful. This includes avoiding offensive language, being mindful of others perspectives, and immediately reporting any violations to the moderation team. 
